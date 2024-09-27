@@ -6,7 +6,7 @@
 
 ⁺✧. Journaling
 
-⁺✧. PLaying
+⁺✧. Playing
 
 ⁺✧. Reading
 
@@ -16,10 +16,11 @@
 
 . . .   ɿ(｡･ɜ･)ɾ Ⓦⓗⓐⓣ？My favorites are:
 
-⁺✧. Eating takoyaki
+⁺✧. Eating takoyaki 
 ⁺✧. Sleeping
 ⁺✧. Watching cartoons
 
  That's all, thank you!
 
 
+    
